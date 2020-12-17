@@ -1,0 +1,1 @@
+*R-21 Mark C2* - bolt-action repeater rifle adopted as a main weapon in the Equestrian Army's land force. It's fed by 8.2x55mm rimmed ball cartridges with muzzle velocity of 795 meters per second. Five-round magazines are used mostly, but clip loading is also possible via five-cartridge clips. Overall length is 1105 mm without a bayonet attached.
